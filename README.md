@@ -1,4 +1,4 @@
 # HelloWorld
 First repository
-Almost 50 and still trying to make my mark on history
-Maybe 50 is the year to do that
+58 and trying to learn how to code or program something useful!
+Never give up :-)  
